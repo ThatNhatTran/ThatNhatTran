@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Nhat
 - 👀 I’m interested in Cars and all the stuffs
-- 🌱 I’m currently learning making a blogging app where people can post and finding there fitments
 - 💞️ I’m looking to collaborate on Big communities car so that people can find parts and stuffs more easier
 - 📫 How to reach me - don't reach me 
 - ⚡ Fun fact: I love driving car
